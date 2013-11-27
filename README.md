@@ -1,4 +1,4 @@
 temp
 ====
 
-Just for fun!
+Just for fun! :)
